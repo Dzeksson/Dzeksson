@@ -1,4 +1,8 @@
-# 👋 Hi, I'm Dzeksson
+# 👋 Hi, I'm Bankyoxide from Z2U you can chat with me on my Telegram: @thomasslotnick
+
+
+
+
 ### 🚀 Full Stack Developer | React | Node.js | Python | Blockchain Enthusiast  
 
 I’m a passionate full-stack developer with experience building scalable web and mobile applications.  
