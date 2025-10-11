@@ -1,4 +1,3 @@
-# 👋 Hi, I'm Bankyoxide from Z2U you can chat with me on my Telegram: @thomasslotnick
 
 
 
